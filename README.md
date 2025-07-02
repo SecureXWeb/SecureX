@@ -5,7 +5,7 @@
 SECUREX
 
 Purav Verma ( founder )
-varmapurav7@gmail.com
+vermapurav7@gmail.com
 
 
 
